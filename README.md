@@ -21,4 +21,4 @@ i love mince pies, also gingner beer
 
 [ some music i like listening to! ](https://www.youtube.com/playlist?list=PLJ21wKIketG_qwbpql0CAcMmuLXd0Ml3r)               
 
-![https://www.reddit.com/r/bleach/comments/1l3v0o9/drop_your_ichigo_memes/](me fr.png)
+![https://www.reddit.com/r/bleach/comments/1l3v0o9/drop_your_ichigo_memes/](ichigo.jpeg)
